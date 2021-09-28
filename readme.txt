@@ -1,0 +1,1 @@
+This application is made for only educational purposes , do not use it for malicious purposes!
